@@ -1,2 +1,2 @@
 # tranloi252.github.io
-[xâu kí tự string.docx](https://github.com/tranloi252/tranloi252.github.io/files/6987354/xau.ki.t.string.docx)
+![image](https://user-images.githubusercontent.com/88885177/129463713-3884133b-8c30-414a-968b-8ed990a91c0e.png)
